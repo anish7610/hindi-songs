@@ -14,4 +14,4 @@ projects -> https://github.com/anish7610/learn-cpp/tree/main/projects
 
 FYI I never listen to music while coding like others do and I have been only listening to Spanish music for years.
 
-This is good for a change because ironically I am foreign to home-grown music.. I strongly believe in the saying and practice it whole-heartedly, "when in rome do as the romans do."
+This is good for a change because ironically I am foreign to home-grown music.. I strongly believe in the saying and practice it whole-heartedly, "When in rome do as the romans do."
