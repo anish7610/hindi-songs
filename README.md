@@ -14,4 +14,4 @@ FYI I never listen to music while coding like others do and I have been only lis
 
 This is good for a change because ironically I am now foreign to home-grown music.. I strongly believe in the saying and practice it whole-heartedly, "When in rome do as the romans do."
 
-Wow! So I found a goldmine of remixes of old classics which are now modernized.. didn't knew it got so advanced.. long time but feels great back to being a normal indian guy.. who codes and listens to bollywood.. I was led astray by foreign hobbies, influences and culture. This is much better, cannot get anymore simpler than that. Life is good!
+Wow! So I found a goldmine of remixes of old classics which are now modernized.. didn't knew it got so advanced.. long time but feels great back to being a normal indian guy.. who codes, maybe hits the gym every now and then and listens to bollywood.. I was led astray by foreign hobbies, influences and culture. This is much better, cannot get anymore simpler than that. Life is good!
